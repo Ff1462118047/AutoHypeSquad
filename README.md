@@ -1,2 +1,2 @@
 # AutoHypeSquad
-自动气氛组 · 各种场面自动发言 | AutoHypeSquad
+星趴气氛组❤让爱传播 | AutoHypeSquad
